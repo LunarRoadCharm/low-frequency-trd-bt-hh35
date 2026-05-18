@@ -1,4 +1,4 @@
-# 
+# secure bot de negociação perpétua scripts é o melhor bot de negociação perpétua scripts com alavancagem automática e tamanho da posição. Seguro, confiável e otimizado para
 
 
 
